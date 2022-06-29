@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Vidhi8722
 - 👀 I’m interested in Coding,Dancing,Music
-- 🌱 I’m currently in B.tech(3rd Year CSE)
+- 🌱 I’m currently in B.tech(4th Year CSE)
 - 📫 To reach me you can refer my E-mail id: vidhitrivedi8722@gmail.com
 
 <!---
